@@ -1,7 +1,4 @@
 
-![1756450468](https://github.com/user-attachments/assets/0ae78fd2-6a22-4daf-8bca-9236027f7812)
-
-
 
 language
 
